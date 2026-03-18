@@ -1,7 +1,7 @@
 # Stay gluten-free in South Korea
 
 ## General Advice
-You can never be 100% sure that a dish is gluten-free around here. Even if a dish should be in theory, because all of its ingredients are gluten-free, there still is the possibility of cross-contamination during its preparation. That's also the reason why a "100% Gluten-free Food" list cannot be provided, and rather you'll see a "Likely Gluten-free Food" list on this page. Always double check!
+You can never be 100% sure that a dish is gluten-free around here. Even if a dish should be in theory, because all of its ingredients are gluten-free, there's still the possibility of cross-contamination during its preparation. That's also the reason why a "100% Gluten-free Food" list cannot be provided, and you'll rather see a "Likely Gluten-free Food" list instead on this page. Always double check!
 
 Here are a few facts and ingredients you should watch out for during your stay:
 
